@@ -1,2 +1,1 @@
-# Gojo-pair-web1
-Gojo  bot pir code
+# 🄿🄾🅆🄴🅁🄳 🅱🆈 𝔾𝕆𝕁𝕆 𝕄𝔻 💀
